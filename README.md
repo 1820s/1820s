@@ -17,7 +17,7 @@
   💬 Ask me about for any help
 
   📫 How to reach me:  
-  Mail me at "hostile@memeware.net"
+  Mail me at "scare@europe.com"
 
 ⚡ Fun fact: 7 out of 10 consumers find a company via the blog
 
